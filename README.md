@@ -1,0 +1,2 @@
+This quiz is for all the fans who love the show "Billions". It's a simple quiz based on the few seasons. 
+Me and my friend are the top scorers of this quiz. Try to beat our scores and you would be ranked no 1 on the leaderboard. All the best.
